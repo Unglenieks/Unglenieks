@@ -1,0 +1,4 @@
+- @Unglenieks
+- Dan Unglenieks
+- Natural Resources Management (B.S.) Michigan Technological University
+- daniel.unglenieks@gmail.com
